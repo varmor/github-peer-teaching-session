@@ -1,7 +1,10 @@
-[varmor](http://github.com/varmor)
-
+[probalkar3123](http://github.com/probalkar3123) 
 Really Enjoyed the session
 
-[probalkar3123](http://github.com/probalkar3123)
-
 Really enjoyed this session!
+
+awesome session for peer learning.
+
+Very Interesting session
+
+
